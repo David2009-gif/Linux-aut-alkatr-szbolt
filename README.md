@@ -1,0 +1,1 @@
+# Linux-aut-alkatr-szbolt
